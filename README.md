@@ -1,3 +1,3 @@
-# Taller-pr-ctico-2-
+# Taller-práctico-2-
 
 Pablo Andrés Cataño Ramírez.
